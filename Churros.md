@@ -21,3 +21,13 @@
 6. Fríe los churros hasta que estén dorados y crujientes. Retira y coloca sobre papel absorbente.
 7. Mezcla azúcar y canela y reboza los churros antes de servir.
 
+## Variante: Churros con chocolate
+
+Si quieres churros con chocolate:
+
+1. Prepara la receta base de los churros como siempre.
+2. Derrite chocolate negro o con leche en un cazo a fuego lento o en el microondas.
+3. Sirve los churros recién fritos acompañados del chocolate derretido para mojar.
+4. Opcional: espolvorea un poco de azúcar o canela sobre los churros antes de servir.
+
+
